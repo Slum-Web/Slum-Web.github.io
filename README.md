@@ -8,4 +8,4 @@ Slums can be brutal :(
 
 
 
-on noooo you chose the wrong nation in RISE OF KINGDOMS
+on noooo you chose the wrong nation in RISE OF KINGDOMS and now only have 1 power
